@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sakiram.
-- 👀 I’m interested in coding and editing videos.
+- 👀 I’m interested in coding and designing.
 - 🌱 I’m currently learning to code.
 - 💞️ I’m looking to collaborate with others.
 - 📫 you can reach me by my email id- sakiramganesan@gmail.com
